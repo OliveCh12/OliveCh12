@@ -8,7 +8,7 @@ Currently working as a Free-lance, I'm based in Paris and I would be delighted t
 
 Check out my portfolio :
 
-[olivierchemla.work](https://olivierchemla.work/
+[olivierchemla.work](https://olivierchemla.work/)
 
 
 - 🔭 I’m currently working on my porfolio
